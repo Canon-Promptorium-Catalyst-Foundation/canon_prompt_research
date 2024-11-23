@@ -1,0 +1,1 @@
+Exploring the science of prompts and alignment, the Canon Prompt Foundation advances frameworks and catalysts to refine thought initiation, enhance communication, and drive transformative ideas across disciplines.
